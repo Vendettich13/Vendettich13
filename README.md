@@ -27,7 +27,3 @@
 ---
 
 [![](https://visitcount.itsvg.in/api?id=Vendettich13&icon=2&color=11)](https://visitcount.itsvg.in)
-
-## 💰 You can help me by Donating
-
-[![BuyMeACoffee](826wvptdfj@privaterelay.appleid.com)
